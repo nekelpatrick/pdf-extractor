@@ -1,0 +1,1 @@
+Azmathar é o deus do Sol, Luz, Fogo, Estrelas e Céu. Ele é o patrono do Dia, Bem, Zodíaco, Astrônomos e Videntes. Azmathar é um dos deuses superiores, um farol de luz e bondade.

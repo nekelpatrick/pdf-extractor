@@ -1,0 +1,1 @@
+Gofthar, o Justo, é o deus da Justiça, Força, Lei, Disciplina e Ordem. Ele é o patrono da Civilização, Cidades, Reis e Governantes. Gofthar é um dos deuses superiores, amado e respeitado pelos cidadãos de Elfaer.

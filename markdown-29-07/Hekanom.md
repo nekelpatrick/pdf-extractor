@@ -1,0 +1,1 @@
+Hekanom é o Deus da Destruição, Necromancia, Maldade e Caos. Ele é o patrono dos Mortos-vivos, Escuridão e Discórdia. Como uma deidade menor, Hekanom é temido por sua associação com a morte e a destruição.

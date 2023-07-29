@@ -1,0 +1,1 @@
+Ezlene é a Deusa do Destino, Tempo, Profecia e Mistério. Ela é a patrona da Previsão, Futuro e Segredos. Como uma deidade média, Ezlene é conhecida por sua sabedoria e previsões.

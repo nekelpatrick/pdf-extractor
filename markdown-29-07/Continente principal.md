@@ -1,0 +1,1 @@
+O continente principal, onde estão situados os reinos de [[Njord]], [[Kiverlia]], [[Olfsberg]] e [[Lumeria]]

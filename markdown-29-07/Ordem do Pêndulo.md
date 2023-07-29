@@ -1,0 +1,1 @@
+Ordem do Pêndulo, uma organização fundada após o [[Tratado da Não-Magia]], decorrente dos trágicos eventos que culminaram no armistício entre [[Kiverlia]] E [[Njord]].
